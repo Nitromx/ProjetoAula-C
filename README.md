@@ -3,5 +3,5 @@
 ----
 
 ## Experiencia
-
--Aprendiz-Unimed
+- Rh-Unimed
+- Paschoalotto-Atendente de Telemarketing
